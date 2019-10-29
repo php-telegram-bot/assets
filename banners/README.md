@@ -1,0 +1,1 @@
+The background design is licensed under the *Freepik Free License* attached.
